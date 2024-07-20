@@ -12,3 +12,5 @@ Firstly at gndec we visited at gurdwara sahib for inaugration ceremony .After ki
 ##Day-2
 
 on the second day of induction programme we were in classes .our Ist class is universal human value class which is host by professor jasmine kaur mam .she told us about human aspiration and human desires and about natural acceptance .she told us only phsical facilities is not sufficient for happiness and fulfillment of relationship is also necessary.Our second class is host by our seniors they learn us about excel and chat gpt .It is also very good experience for me.
+
+
